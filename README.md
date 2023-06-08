@@ -1,0 +1,2 @@
+# Diyor
+shampon haqida malumotlar
